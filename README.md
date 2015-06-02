@@ -8,4 +8,11 @@ My spirit animal is an otter.
 -An otter can hold its breath underwater for up to 4 minutes.
 -Otters can be found on all continents except Antarctica and Australia. 
 
+
 [Wikipedia Article](http://en.wikipedia.org/wiki/Otter)
+
+
+[Rivier Otters](http://inotternews.com/wp-content/uploads/2012/11/river_otter_indiana_21.jpg)
+
+
+
